@@ -1,0 +1,1 @@
+# logika_svit_ponchukiv
